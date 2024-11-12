@@ -1,7 +1,6 @@
 # Olá! Me chamo Fernando Lopes 👨‍💻 ✌️
 <br/>
 
-##### Tenho 26 anos, sou casado e moro em Porto Alegre, RS. Apaixonado por tecnologia, estou sempre explorando cursos online. </br></br>O mundo do desenvolvimento web? Esse, para mim, é pura fascinação! </br></br>
 
 ## Segue as Redes Sociais Abaixo 📱 ⤵️
 
